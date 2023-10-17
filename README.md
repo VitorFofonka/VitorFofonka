@@ -1,0 +1,1 @@
+Sou apenas um amante de automatização e banco de dados dando o seu melhor à cada dia.
